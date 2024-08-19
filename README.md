@@ -2,7 +2,7 @@
 *Projected graduation 2027
 *Know some python
 *Know some html
-![title](https://images.app.goo.gl/x2reaHKdeW3PScfDA)
+![title](https://m.media-amazon.com/images/I/61GYXQErKOL._AC_UF1000,1000_QL80_.jpg)
 ## Term1
 
 ## Term2
